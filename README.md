@@ -1,4 +1,1 @@
-https://trumcard3s.com/
-https://trumcard3s.com/
-https://trumcard3s.com/
-
+https://shop7sao.com/
